@@ -1,1 +1,1 @@
-# afridi1600mtr.github.io
+# afridi1600mtr.com
